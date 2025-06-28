@@ -1,2 +1,1 @@
-# snorlaxxx666.github.io
-# first website i ever make xD
+# just a joke
